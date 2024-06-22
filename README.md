@@ -1,0 +1,1 @@
+# kombet_tichdata
